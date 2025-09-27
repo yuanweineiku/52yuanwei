@@ -12,3 +12,6 @@
 
 所有原味衣物均是实穿实拍，一图胜千言！不怕不识货，就怕货比货！
 
+#### 贵在真实，非诚勿扰
+
+![原味卖点](https://github.com/yuanweineiku/52yuanwei/blob/main/xn--v6qz4cgsk14n.com.png)
